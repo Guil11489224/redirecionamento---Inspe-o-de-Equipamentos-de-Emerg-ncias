@@ -1,0 +1,1 @@
+# redirecionamento---Inspe-o-de-Equipamentos-de-Emerg-ncias
